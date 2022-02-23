@@ -1,1 +1,1 @@
-thoughts will be gone here
+thoughts will gone here
